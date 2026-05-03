@@ -3,7 +3,7 @@
 ## Pin-Up Girl (Marino Degano)
 2023-12-01<br>
 ![Pin-Up Girl](images/2023-12-01-Pin_Up_Girl.jpg)
-<br>1000 pieces
+<br>1500 pieces
 
 ## FUNKY ZOO - Ocean Habitat (Marino Degano)
 2022-08-23<br>
